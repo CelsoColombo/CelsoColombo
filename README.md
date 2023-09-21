@@ -2,7 +2,7 @@
 
 
 - 🔭 Hoje trabalho com Matemática, Educação Financeira e Pensamento Computacional
-- 🌱 Estudando Formadores em Ação SEED/PR 2022
+- 🌱 Estudando Formadores em Ação SEED/PR 2023
 - 📫 Contate-me: celso.mario.santos@escola.pr.gov.br
 - 😄 Pronouns: ele/dele
 
